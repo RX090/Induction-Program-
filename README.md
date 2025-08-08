@@ -13,3 +13,14 @@ I learned an essential lesson: “Seize the opportunity; don’t wait for it to 
 Next, the ADGP Officer shared invaluable insights about karma and the delayed rewards of good deeds. He spoke from experience for about an hour without any preparation, which was impressive. One piece of advice that stood out was: “Don’t be easily impressed; there’s always more to learn.”
 
 Students who interacted and spoke up received chocolates. In the end, I missed out on chocolates but gained countless lessons, some the hard way. I resolved never to miss an opportunity again.
+<br>
+Day2
+<br>
+A new opportunity arose thanks to Dr. Arvind Dhingra. He helped me shed my reserved behavior and start interacting with others. He asked for 11 boys and 11 girls to come up on stage. Determined not to miss any opportunity, I joined them. We played a team strategy game and introduced ourselves to our peers.
+
+Then, Dr. H.S. Rai, the Controller of Examination, spoke. His perspective on examinations was fascinating, viewing them as opportunities to shine.
+
+Unexpectedly, Dr. H.S. Rai sought 10 students to work with him – not for him. I felt it was divine intervention when I got selected to be part of this group, which eventually grew to 50 members. From the second day of college, we began learning the latest technologies, an opportunity rarely seen elsewhere.
+<br>
+Day3
+
